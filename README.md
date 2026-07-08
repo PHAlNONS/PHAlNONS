@@ -1,5 +1,7 @@
 <div align="center">
 
+![](https://file.garden/aTDatBJtJjtpnqjn/ac_HazoZOYAKU_on_twt.png)
+
 this guy STINKS like a NOOB! WOMP WOMP WOMP WOMP
 
 ![](https://i.postimg.cc/pdBpVtY7/blue.gif) ![](https://i.postimg.cc/N0SyKx2Z/blue.gif) ![](https://i.postimg.cc/nL1CVtG8/blue.gif) ![](https://i.postimg.cc/TwnrGsHG/blue.gif) ![](https://i.postimg.cc/C55Z668X/pink.gif) ![](https://i.postimg.cc/1RWPmzx0/pink.gif)
