@@ -5,7 +5,7 @@
 
 puppy ᵒᵘ pup  .✧  17歳
 <br> ♯  they ᵗʰᵉᵐ  ꩜  [yumejin](https://pronouns.cc/samoyeds) 
-<br> <img src="https://file.garden/aTDatBJtJjtpnqjn/PHAlNONS/puppymojies.gif" width="50" title="meow"> comf skins ﹕<a href="https://hits.sh/github.com/PHAlNONS/hits/"><img alt="cycles" src="https://hits.sh/github.com/PHAlNONS/hits.svg?label=Cycles&color=ffffff&labelColor=ffffff&style=flat-square"/></a>
+<br> <img src="https://file.garden/aTDatBJtJjtpnqjn/PHAlNONS/puppymojies.gif" width="50" title="meow"> [comf skins](https://pupnon.straw.page) ﹕<a href="https://hits.sh/github.com/PHAlNONS/hits/"><img alt="cycles" src="https://hits.sh/github.com/PHAlNONS/hits.svg?label=Cycles&color=ffffff&labelColor=ffffff&style=flat-square"/></a>
 
 
 <h5 align="center">
