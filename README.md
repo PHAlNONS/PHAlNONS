@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="529" height="529" alt="dede" src="https://file.garden/aTDatBJtJjtpnqjn/PHAlNONS/phaidei.png" />
+<img src="https://file.garden/aTDatBJtJjtpnqjn/PHAlNONS/phaidei.png" width="320" align="left" title="he looks just like a dream..">
 
 this guy STINKS like a NOOB! WOMP WOMP WOMP WOMP
 
