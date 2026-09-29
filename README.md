@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="529" height="529" alt="dede" src="https://github.com/user-attachments/assets/3c671fb3-f8c5-43e6-8903-6c558ceae005" />
+<img width="529" height="529" alt="dede" src="https://file.garden/aTDatBJtJjtpnqjn/PHAlNONS/phaidei.png" />
 
 this guy STINKS like a NOOB! WOMP WOMP WOMP WOMP
 
