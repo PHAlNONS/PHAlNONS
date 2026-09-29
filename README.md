@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://file.garden/aTDatBJtJjtpnqjn/ac_HazoZOYAKU_on_twt.png)
+<img width="529" height="529" alt="dede" src="https://github.com/user-attachments/assets/3c671fb3-f8c5-43e6-8903-6c558ceae005" />
 
 this guy STINKS like a NOOB! WOMP WOMP WOMP WOMP
 
